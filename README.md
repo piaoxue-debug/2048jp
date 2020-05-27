@@ -1,10 +1,10 @@
 <h1> 最新地址:</h1>
 
+(最新)
+https://www.tbrjx.vip
 
-https://www.tbrjx.vip(最新)
-
-
-https://www.tbrjx.com(被墙)
+(已被屏蔽)
+https://www.tbrjx.com
 
 <h1>备用发布页:</h1>
 
