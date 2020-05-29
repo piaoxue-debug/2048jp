@@ -1,6 +1,7 @@
 <h1> 最新地址:</h1>
 
 (最新)
+https://2048jp.pw/
 https://www.tbrjx.vip
 
 (已被屏蔽)
