@@ -4,7 +4,7 @@
 <P>
 https://2048jp.pw/
 <P>
-https://www.tbrjx.vip
+https://www.tbrjx.vip/
 
 (已被屏蔽)
 <P>
