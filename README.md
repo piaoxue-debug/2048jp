@@ -5,7 +5,7 @@
 https://2048jp.pw/
 <P>
 
-(已被屏蔽)
+(已被污染/屏蔽)
 <P>
 https://www.tbrjx.vip/
 https://www.tbrjx.com
