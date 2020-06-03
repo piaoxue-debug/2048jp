@@ -3,6 +3,8 @@
 (最新免翻)
 <P>
 https://2048jp.pw/
+https://tbrjx.pw/ 
+https://tbrjx.club/
 <P>
 (已被污染/屏蔽)
 <P>
